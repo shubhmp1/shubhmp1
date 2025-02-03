@@ -27,4 +27,4 @@ September 2024 - December 2024
 📞 Contact
 📍 Hamilton, Ontario  
 📧 shubh.mp100gmail.com  
-🌐 [LinkedIn](www.linkedin.com/in/shubhpatel1) 
+🌐 [LinkedIn](https://www.linkedin.com/in/shubhpatel1/) 
